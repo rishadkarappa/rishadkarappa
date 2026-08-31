@@ -1,2 +1,2 @@
 I’m  [Rishad](https://rishad.is-a.dev) :)  
-An Inquisitive Journey of How..
+An Inquisitive Journey of How
